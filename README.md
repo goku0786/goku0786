@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @goku0786 aka Gaurav 😁
+- 👋 Hi, I’m Gaurav aka Goku 😁
 - 👀 I’m interested in learning new tech skills
 - 🌱 I’m currently learning programming
 - 📫 How to reach me at Telegram @goku98
