@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Web Development**
 
-- 📫 How to reach me **gk1237860@gmail.com**
+- 📫 How to reach me **hey.garv07@gmail.com**
 
 - ⚡ Fun fact: **Light attracts bugs that's why programmer chooses dark mode 😂😂**
 
